@@ -19,6 +19,8 @@ Bookmarks to things, why use a bookmark manager?
 1. Keto hacks - https://imgur.com/gallery/8TGCEfI
 1. Bulletproof coffee alternative - https://www.lowcarbzen.com/low-carb-recipes/drinks/bulletproof-coffee-knockoff/
 1. Wtf is MCT oil - https://www.shape.com/healthy-eating/diet-tips/what-mct-oil-superfood-ingredient
+1. Macro calculator - https://ketogains.com/ketogains-calculator/
+1. https://www.ruled.me/
 
 ## Recipes
 
